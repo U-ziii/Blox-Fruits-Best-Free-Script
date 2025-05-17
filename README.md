@@ -2,7 +2,7 @@
 
 Unlock powerful utility features in **Blox Fruits** with the ultimate **Best Free Script**, now fully **keyless** and updated for smooth gameplay. Whether you're hopping servers, redeeming codes, or rejoining after a kick, this script automates the grind with clean performance and top-tier convenience.
 
-![script-image](image-link-placeholder)
+![script-image](https://github.com/U-ziii/Blox-Fruits-Best-Free-Script/blob/main/_Blox%20Fruits%20Best%20Free%20Script%20.png)
 
 ---
 
